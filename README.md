@@ -1,1 +1,1 @@
-# Retos-de-preparacion-entrevistas
+# Retos de preparación para entrevistas laborales
